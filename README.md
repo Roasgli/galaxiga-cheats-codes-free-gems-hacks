@@ -1,2 +1,5 @@
-# galaxiga-cheats-codes-free-gems-hacks
-Galaxiga Cheats and Codes unlimited free gems Hacks unlock ships
+# Galaxiga Cheats and Codes unlimited free gems Hacks unlock ships
+
+Galaxiga Cheats and Codes unlimited free gems Hacks unlock ships - Although these powerful objects look impressive, it is important to know that they will only be used on stage. If you reserve, say, 5 shields and use one of them to reach a level, the next time you see them, they will be reduced to 4. They are a limited commodity. You can buy them in gold or get rewards by installment payment, so it is always good to use them sparingly. As we mentioned in Item 2, to destroy your enemies with skills, it is best to save overdrive gear or shield for the boss, especially when they are particularly difficult and you seem unable to defeat Galaxiga codes. The key here is to use your main weapon to destroy the smaller L.A. bugs and save your secret weapon to achieve a significant increase in damage. If you use it too quickly, you may find yourself in a difficult and long boss battle.
+
+<a href="https://growhunt.top/galaxiga/">view more</a>
